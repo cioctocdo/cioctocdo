@@ -1,4 +1,4 @@
-## 欢迎到[CIO,CTO和CDO社区](https://www.cioctocdo.com)
+## 欢迎到[CIO,CTO和CDO社区](https://jiagoushi.pro)
 
 
 
